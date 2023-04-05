@@ -2,4 +2,5 @@
 People as ART webpage
 
 
-![13](https://user-images.githubusercontent.com/121817168/230184911-dd2ae7eb-9242-44b1-a670-5457a8befc82.png)
+
+![5](https://user-images.githubusercontent.com/121817168/230185396-20cc18e4-ffdd-4d73-a4d0-dc65bb7d483b.png)
